@@ -2,4 +2,4 @@
 # fajnie działa
 ok
 xd
-fajnie fajnie nie fajnie
+fajnie fajnie nie fajniefsfsfsfs
